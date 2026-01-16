@@ -1,1 +1,2 @@
-<img width="1025" height="1030" alt="Untitled127_20251207233600" src="https://github.com/user-attachments/assets/4a5e61cb-56f2-4a15-bd30-e07070dfd7d6" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/9836ede5-8c50-4ba0-bb14-03bce018a809" />
+ 𓏵 I'll make this pretty ok later... trust 
